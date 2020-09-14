@@ -11,7 +11,7 @@ My education:
 - Dunman High School
 
 My projects:
--Getting good at blockgame
--IMrpoving my spellign
--Learning to code.
+- Getting good at blockgame
+- IMrpoving my spellign
+- Learning to code.
 
