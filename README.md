@@ -1,18 +1,17 @@
-# computing-work
+## **Welcome!**
 
-### Hi there! Welcome to my computing repository!
+I am **Scott Neo**, a Year 1 Student currently studying in Dunman High School.
 
-Include a short introduction of yourself here (write your name, school etc,)
+My hobbies:
+- Playing Blockgame
+- Messaging on the other messaging app not known as whatsapp.
 
-### Some information about me:
+My education:
+- Horizon Primary School
+- Dunman High School
 
-Things you like:
--
--
--
-
-Things you do:
--
--
--
+My projects:
+-Getting good at blockgame
+-IMrpoving my spellign
+-Learning to code.
 
