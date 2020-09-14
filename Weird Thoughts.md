@@ -1,16 +1,24 @@
 ## In the shower
 
 - In a barcode, the white lines are scanned not the black ones.
-- 'Firefly' is the opposite of 'waterfall'.
-- No one ever said Humpty Dumpty was an egg.
 - The letter 'x' has more uses in math than in the English language.
 - Don't you dare sounds normal, but do not you dare sounds weird.
 - Whoever milked a cow for the very first time, what was he thinking?
-- What if we are all dying and everything is just our lives flashing before us?
 - Mercedes has all 3 E's pronounced differently.
 - If we remove all laws, the crime rate would be 0%.
 - Butter is food lotion.
-- Why democracy and not communism?
 - Is cereal soup?
-
-
+- There should be a reality show where flat-earthers have to find the edge of the world.
+- They put music from the 50s and 60s in medicine commercials to appeal to the older generation... meaning sometime in the future, Despacito will be playing on a commercial for laxatives.
+- Making a typo in an online argument is the equivalent of voice cracking in a verbal argument.
+- Your voice in your head doesn't need to take a breath.
+- Using a one dollar note as a book mark is cheaper than buying a bookmark.
+- Kids endlessly asking "why" are actually applying the socratic method and stimulate adults to think critically.
+- If the thumb is not a finger, then there is no middle finger.
+- 
+- 
+- 
+- 
+- 
+- 
+- 
