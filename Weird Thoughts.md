@@ -18,7 +18,7 @@
 - For the first 8 minutes of your life the sunlight around you is older than you are
 - If you won the award of the first man to break two world records, that would make it 3 awards, and you win the award of first man to break 3 records, now you have infinite      awards.
 - The E's in pee/bee are silent, as is everything after the "Q" in "queue".
-- 
-- 
+- Which is the silent letter in 'scent', 's' or 'c'?
+- Why do we cook bacon but bake cookies?
 - 
 - 
