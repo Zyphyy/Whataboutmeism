@@ -15,9 +15,9 @@
 - Using a one dollar note as a book mark is cheaper than buying a bookmark.
 - Kids endlessly asking "why" are actually applying the socratic method and stimulate adults to think critically.
 - If the thumb is not a finger, then there is no middle finger.
-- 
-- 
-- 
+- For the first 8 minutes of your life the sunlight around you is older than you are
+- If you won the award of the first man to break two world records, that would make it 3 awards, and you win the award of first man to break 3 records, now you have infinite      awards.
+- The E's in pee/bee are silent, as is everything after the "Q" in "queue".
 - 
 - 
 - 
