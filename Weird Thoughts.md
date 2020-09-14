@@ -1,4 +1,4 @@
-## **In the shower**
+## In the shower
 
 - In a barcode, the white lines are scanned not the black ones.
 - 'Firefly' is the opposite of 'waterfall'.
@@ -11,6 +11,6 @@
 - If we remove all laws, the crime rate would be 0%.
 - Butter is food lotion.
 - Why democracy and not communism?
-- 
+- Is cereal soup?
 
 
