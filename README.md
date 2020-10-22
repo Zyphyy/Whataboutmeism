@@ -3,7 +3,7 @@
 I am **Scott Neo**, a Year 1 Student currently studying in Dunman High School.
 
 My hobbies:
-- Playing Blockgame
+- Playing Blockgame ew
 - Messaging on the other messaging app not known as whatsapp.
 
 My education:
